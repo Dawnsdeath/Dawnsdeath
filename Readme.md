@@ -10,7 +10,7 @@
 
 <img width="336" height="378" alt="Untitled4_20251011185657" src="https://github.com/user-attachments/assets/0f9ee901-b06b-4927-8f9e-f3a037ea9c75" />
 
-[.co/dawnsdeath](https://rentry.co/dawnsdeath)ㅤ ㅤ ㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤ
+[.co/furinathefountain](https://rentry.co/furinathefountain)ㅤ ㅤ ㅤ ㅤㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤ
 
 `卡厄斯兰那` 𓃊ㅤ“I grant you a Dawn where all stars burn to ash.” <img width="30" height="30" alt="Untitled3_20251011173529" src="https://github.com/user-attachments/assets/4d490567-3761-4859-903e-6aa95083d3ed" />
 
